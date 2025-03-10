@@ -2,7 +2,7 @@
 
 ## Project 3 Sign up
 
-Team 1:    
+Team 1:    Gullit Navarrete (looking for team)
 Team 2:     
 Team 3:    
 Team 4:    
